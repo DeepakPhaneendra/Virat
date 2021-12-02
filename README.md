@@ -16,3 +16,7 @@ Pant annaaa..... 🔥
 ![Mr 360](https://c.tenor.com/BvnWWFq1yl0AAAAM/ab-devilliers-gif.gif)
 
 ![BOOM](https://thumbs.gfycat.com/GrouchyAnyGar-size_restricted.gif)
+
+![Rajini Swag](https://c.tenor.com/hxmN5-nlu_wAAAAM/rajinistyle-rajinikanth.gif)
+
+![Rajini Style](https://c.tenor.com/0lp72AcqbWkAAAAd/rajini-glasses-style-rajinikanth.gif)
