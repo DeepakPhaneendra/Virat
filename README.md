@@ -14,3 +14,5 @@ Pant annaaa..... 🔥
 ![Scoop Shot](https://c.tenor.com/I9rdu_0IRkUAAAAd/rishabh-pant-james-anderson.gif)
 
 ![Mr 360](https://c.tenor.com/BvnWWFq1yl0AAAAM/ab-devilliers-gif.gif)
+
+![BOOM](https://thumbs.gfycat.com/GrouchyAnyGar-size_restricted.gif)
