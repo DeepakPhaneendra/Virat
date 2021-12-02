@@ -7,6 +7,8 @@
 
 Pant annaaa..... 🔥
 
+![smriti papa](https://thumbs.gfycat.com/PlushMatureHookersealion-size_restricted.gif)
+
 ![Cover Drive](https://c.tenor.com/Cqm09jucjBAAAAAC/virat-kohli-cover-drive.gif)
  
 ![pull shot](https://c.tenor.com/dac8CpEUjakAAAAC/rohit-sharma-pull-shot.gif)
