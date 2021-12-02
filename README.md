@@ -9,6 +9,10 @@ Pant annaaa..... 🔥
 
 ![smriti papa](https://thumbs.gfycat.com/PlushMatureHookersealion-size_restricted.gif)
 
+![dd](https://c.tenor.com/W2ZfHUM647wAAAAM/lady-dada-gif.gif)
+
+# *Smrirti papa 💙*
+
 ![Cover Drive](https://c.tenor.com/Cqm09jucjBAAAAAC/virat-kohli-cover-drive.gif)
  
 ![pull shot](https://c.tenor.com/dac8CpEUjakAAAAC/rohit-sharma-pull-shot.gif)
@@ -22,3 +26,5 @@ Pant annaaa..... 🔥
 ![Rajini Swag](https://c.tenor.com/hxmN5-nlu_wAAAAM/rajinistyle-rajinikanth.gif)
 
 ![Rajini Style](https://c.tenor.com/0lp72AcqbWkAAAAd/rajini-glasses-style-rajinikanth.gif)
+
+![Dhobi](https://c.tenor.com/o2euYMpFnLYAAAAd/paandi-csk.gif)
